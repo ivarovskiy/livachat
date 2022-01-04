@@ -1,1 +1,1 @@
-# no for fun, i`m crying
+# not for fun, i`m crying
